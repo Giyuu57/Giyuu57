@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm Gouransh Sattavan
+# 💫 Heyya 👋, I'm Gouransh Sattavan
 **A passionate Learner and Coder**
 
 Email Me 👉 ✉️ **gouranshsattavan@gmail.com** For Collaboration/Project or Anything Else.
