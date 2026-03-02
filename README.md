@@ -1,7 +1,7 @@
 # 💫 Heyya 👋, I'm Gouransh Sattavan
 **A passionate Learner and Coder**
 
-Email Me 👉 ✉️ **gouranshsattavan@gmail.com** For Collaboration/Project or Anything Else hehe.
+Email Me 👉 ✉️ **gouranshsattavan@gmail.com** For Collaboration/Project or Anything Else.
 
 - 🔭 **I’m currently working on:** An full working app or learning it
 - 🌱 **I’m currently learning:** App Dev
