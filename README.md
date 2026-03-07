@@ -7,7 +7,7 @@ Email Me 👉 ✉️ **gouranshsattavan@gmail.com** For Collaboration/Project or
 - 🌱 **I’m currently learning:** App Dev
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** I am Giyuu, hehe
+- ⚡ **Fun fact:** I am Giyuu, a cat
 
 ## 🌐 Socials:
 [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:Gouranshsattavan@gmail.com) 
