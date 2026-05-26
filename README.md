@@ -1,5 +1,5 @@
 # 💫 Heyya 👋, I'm Gouransh Sattavan
-**A passionate Learner🧑‍🎓 and Coder💻**
+**A passionate Learner and Coder💻**
 
 Email Me 👉 ✉️ **gouranshsattavan@gmail.com** For Collaboration/Project or Anything Else uhh want.
 
