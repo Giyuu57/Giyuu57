@@ -6,7 +6,7 @@ Email Me 👉 ✉️ **gouranshsattavan@gmail.com** For Collaboration/Project or
 - 🔭 **I’m currently working on:** An full working app or learning it
 - 🌱 **I’m currently learning:** App Development
 - 💬 **Ask me about:** Collaboration, Tech Support or anything else
-- 😄 **Pronouns:** He/Him
+- 😄 **Pronouns:** He/Him/Meow
 - ⚡ **Fun fact:** I am Giyuu, and I love cats and gaming.
 
 ## 🌐 Socials:
