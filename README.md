@@ -1,12 +1,12 @@
 # 💫 Heyya 👋, I'm Gouransh Sattavan
 **A passionate Learner and Coder💻**
 
-Email 👉 ✉️ **gouranshsattavan@gmail.com** For Collaboration/Project or Anything Else uhh want.
+Email ✉️ **gouranshsattavan@gmail.com** For Collaboration/Project or Anything Else uhh want.
 
 - 🔭 **I’m currently working on:** An full working app or learning it
 - 🌱 **I’m currently learning:** App Development
 - 💬 **Ask me about:** Collaboration, Tech Support or anything else
-- 😄 **Pronouns:** He/Him
+- 😄 **Pronouns:** He/Him/cat
 - ⚡ **Fun fact:** I am Giyuu, and I love cats and gaming.
 
 ## 🌐 Socials:
