@@ -3,7 +3,7 @@
 
 Email ✉️ **gouranshsattavan@gmail.com** For Collaboration/Project or Anything Else
 
-- 🔭 **I’m currently working on:** An full working app and learning
+- 🔭 **I’m currently working on:** A full working app and learning
 - 🌱 **I’m currently learning:** App Development 
 - 💬 **Ask me about:** Collaboration, Tech Support or anything else
 - 😄 **Pronouns:** He/Him/Meoww ^_^
